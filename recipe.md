@@ -1,6 +1,6 @@
-INGREDIENTS
+**INGREDIENTS**
  
-100 g Almond flour
+_100 g Almond flour
 100 g white flour
 200 g coconut oil
 200 ml Maple syrup
@@ -10,4 +10,4 @@ INGREDIENTS
 1 tbsp baking powder
 Choc mousse
 200 g dark Choc
-150 ml boiling water
+150 ml boiling water_

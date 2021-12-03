@@ -1,13 +1,13 @@
 **INGREDIENTS**
  
-* 100 g Almond flour
-* 100 g white flour
-* 200 g coconut oil
-* 200 ml Maple syrup
-* 60 g Cacao
-* 1 tbsp Vanilla
-* 200 g Beetroot cooked
-* 1 tbsp baking powder
+* _100 g_ Almond flour
+* _100 g_ white flour
+* _200 g_ coconut oil
+* _200 ml_ Maple syrup
+* _60 g_ Cacao
+* _1 tbsp_ Vanilla
+* _200 g_ Beetroot cooked
+* _1 tbsp_ baking powder
 * Choc mousse
-* 200 g dark Choc
-* 150 ml boiling water
+* _200 g_ dark Choc
+* _150 ml_ boiling water
